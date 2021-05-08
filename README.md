@@ -1,2 +1,0 @@
-# rabiahfh-github.io
-activity
